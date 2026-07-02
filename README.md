@@ -50,7 +50,7 @@ Here’s a snapshot of what I’m comfortable with / exploring:
 
 I’m always open to chat, collaborate, or exchange ideas:
 
-- GitHub: [@Ethanjoyce2010](https://github.com/Ethanjoyce2010)  
+- GitHub: [@Ethanjoyce-dev](https://github.com/Ethanjoyce-dev)  
 - Email: Ethan.sanders10@outlook.com  
 
 ---
