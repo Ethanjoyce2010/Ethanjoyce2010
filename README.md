@@ -1,5 +1,5 @@
 # Hi there 👋  
-I’m Ethan Sanders (aka **Ethanjoyce2010**)
+I’m Ethan Sanders (aka **Ethanjoyce-Dev**)
 
 ---
 
